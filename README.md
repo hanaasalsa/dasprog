@@ -1,6 +1,6 @@
 # dasprog
 
-ayo hana semangat. Dasprog nya A!! belajar terus
+Ayo Hana semangat! Dasprog nya A! Belajar terus!!
 
 Berletih-letih lah di masa muda supaya kamu bisa bersantai di masa tua.
 
